@@ -1,2 +1,2 @@
-Hello im the afdusrt
-i make funny stuffs 
+Hello im the Afdusrt
+I make funny stuffs 
